@@ -1,7 +1,4 @@
-shipping creativity 🍊
+aspiring to ship creativity, trying to have fun :P
 
----
 
-[LinkedIn](https://linkedin.com/in/unnxt30)
-<a href="mailto:officialunnat30@gmail.com">Mail</a>
 
